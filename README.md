@@ -1,16 +1,15 @@
-## Hi there 👋
+### Bem vindos!! ✨
 
-<!--
-**isaalourranequadros/isaalourranequadros** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- Meu nome é Isabelly💕
+- Sou estudante do Ensino Médio🏫
+- Sou praticante do Laço Comprido🐂〰️🐎
+- Sou católica🇻🇦
+- Minha futura profissão é Administração💻
+- Meus planos para o futuro é participar do [Duelo de Anita](https://www.instagram.com/carmembesen_duelodeanita/)💕
+- Nas horas vagas costumo utilizar as redes sociais📱 
 
-Here are some ideas to get you started:
+  ### Obrigada pela atenção!!✨
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  q.isabelly@escola.pr.gov.br
+
+  ![](https://media1.tenor.com/m/xirOQUrigv0AAAAC/silly-horse.gif)
